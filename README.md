@@ -1,6 +1,7 @@
 New 07/03/2025 : Linux version available !
 
 Full Description here :  https://investiguser.com/dans-le-detail/  - 
+Download here : https://investiguser.com/x-monitoring/
 Vidéo Description: https://youtu.be/h21Jd_4T264
 
 
