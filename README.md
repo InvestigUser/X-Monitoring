@@ -1,3 +1,4 @@
+New 31/03/2025 - v 2.22 update with RSS Feed and much more !
 New 07/03/2025 : Linux version available !
 
 Full Description here :  https://investiguser.com/dans-le-detail/
